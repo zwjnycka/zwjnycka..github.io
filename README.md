@@ -1,2 +1,2 @@
 # zwjnycka.github.io
-Adrian Adamek
+Adrian
